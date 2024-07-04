@@ -8,6 +8,8 @@
 
 📚 When I'm not coding, I'm probably reading up on the latest crypto trends or sharing my knowledge with fellow enthusiasts. Let's innovate and inspire together! ✨
 
+# ❤️ 0G - One love ❤️
+
 # Connect with Us
 
 🐦[twitter](https://x.com/AjanaCrypto "twitter") 📁[GitHub](https://github.com/ajanaCrypto "GitHub") 
